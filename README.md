@@ -1,0 +1,1 @@
+güncel google anasayfa
